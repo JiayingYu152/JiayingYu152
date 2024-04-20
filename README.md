@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://jiayingyu152.github.io/](https://jiayingyu152.github.io/)
 
-- 📫 How to reach me **jiaying.belle.yu@gmail.com**
+- 📫 How to reach me **jiaying.yu.fs@gmail.com**
 
 - 📄 Know about my experiences [https://jiayingyu152.github.io/](https://jiayingyu152.github.io/)
 
